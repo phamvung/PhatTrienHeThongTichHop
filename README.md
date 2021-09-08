@@ -1,2 +1,0 @@
-# PhatTrienHeThongTichHop
-TH1
